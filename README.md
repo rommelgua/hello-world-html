@@ -13,6 +13,6 @@ for the past 3 years i gained vast knowledge for administering Computer and Loca
 I am not a college Bachelor degree holder. I am Electronic Engineering associate graduate (3 year course).
 I am planning to create we web development service here in the philippines. i just recently noticed that small and medium sized companies doesn't have responsive, simple but elegant websites over the internet. Their google search ranking is a mess as their content.
 
-I want to break this barrier. I want more small companies to be seen over the internet here in the philippines. this will contribute more business information over the internet. 
+I want to break this barrier. I want more small companies to be seen over the internet here in the philippines that will lead for more local business information over the internet. 
 
 Any feedback is open. thanks ~ ( '  ',  ~ )
